@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-🏫 I'm Currently a Junior at the University of Minnesota - Duluth (UMD)
+🏫 I'm a Graduate of University of Minnesota - Duluth (UMD) - B.S. Major in Computer Science
 
 🎮 I love palying/developing video games
 
