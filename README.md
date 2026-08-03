@@ -2,7 +2,7 @@
 
 🏫 I'm a Graduate of University of Minnesota - Duluth (UMD) - B.S. Major in Computer Science
 
-🎮 I love palying/developing video games
+🎮 I love playing/developing video games
 
 ♂️ He/Him Pronouns
 
